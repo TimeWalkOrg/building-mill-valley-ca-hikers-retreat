@@ -1,2 +1,4 @@
 # building-mill-valley-ca-hikers-retreat
 154-160 Throckmorton
+
+Hiker’s Retreat, originally called the Bennet’s building, was built in 1906 on the intersection of Madrona Avenue and Throckmorton Avenue in Mill Valley, California. Hiker’s Retreat initially was a one and a half story English stucco and wood structure.  It was built to house the Bank of Mill Valley, the first bank in Mill Valley, which remained in the building from 1907 to 1911.  From 1911 to the early 1920s, Hiker’s Retreat provided hikers arriving by train or ferry from San Francisco with showers, checking facilities, and lockers.  Soon, in the 1920s and 1930s, Hiker’s Retreat was remodeled considerably into a two-story building and had an almost completely new façade.  The building became the home of multiple businesses and is presently occupied by Marin Optometry on 158 Throckmorton Avenue.  
